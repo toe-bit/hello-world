@@ -28,3 +28,11 @@ Gdzie bursztynowy świerzop, gryka jak śnieg biała,
 Gdzie panieńskim rumieńcem dzięcielina pała,
 A wszystko przepasane jakby wstęgą, miedzą
 Zieloną, na niej z rzadka ciche grusze siedzą.
+
+
+
+W skład Trylogii wchodzą:
+
+Ogniem i mieczem (1884)
+Potop (1886)
+Pan Wołodyjowski (1888)
